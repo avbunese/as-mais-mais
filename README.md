@@ -1,2 +1,2 @@
 # as-mais-mais
-as mais maiss
+2025/corner.png
